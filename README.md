@@ -239,7 +239,7 @@ I enjoy working with data to identify patterns, solve business problems, and con
 
 💻 **GitHub:** [Diptiman Chakraborty](https://github.com/diptiman11)
 
-💼 **LinkedIn:** [Diptiman Chakraborty](www.linkedin.com/in/diptiman-chakraborty-45606b254)
+💼 **LinkedIn:** [Diptiman Chakraborty](https://www.linkedin.com/in/diptiman-chakraborty-45606b254/)
 
 ---
 
